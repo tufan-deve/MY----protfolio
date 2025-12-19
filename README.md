@@ -1,2 +1,2 @@
 # MY----protfolio
-It is a Ai based protfolio of mine.
+https://tufan-mandal-n4s7h1y.gamma.site/
